@@ -1,1 +1,1 @@
-# Do you have a dream? Dare you try? What is that waiting for!
+# Do you have a dream? Dare you try? What are you waiting for?
